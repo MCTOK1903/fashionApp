@@ -6,3 +6,7 @@
 
 
  design link -> https://dribbble.com/shots/5773232-Discovery-page/attachments
+ 
+ 
+ 
+ Today is my birthday 🥳
